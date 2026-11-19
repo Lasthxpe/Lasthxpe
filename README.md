@@ -7,4 +7,4 @@ I'm Hope — building software, exploring AI, and turning ideas into working pro
 - 🧠 Interested in software engineering, economics, market dynamics, and complex systems
 - ⚙️ Enjoy breaking down complex problems, designing mechanics, and building things from scratch
 - 💡 Driven by curiosity, experimentation, and the challenge of making ambitious ideas work
-- 📫 Reach me: X: @journalrust | Discord: @bighxpe
+- 📫 Reach me: Mail: rudchenko.z2003@gmail.com | TG: @lasthxpe | X: @journalrust | Discord: @bighxpe
